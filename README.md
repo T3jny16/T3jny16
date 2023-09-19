@@ -1,3 +1,4 @@
+![](https://gifdb.com/images/high/black-guy-running-away-3heexnvy6jso9obv.webp)
 <h1 align="center">Hi 👋, I'm T3jny</h1>
 <h3 align="center">Jsem studentem oboru IT</h3>
 
